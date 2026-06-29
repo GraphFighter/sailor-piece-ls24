@@ -1,4 +1,4 @@
-
+Experience one tap like never before with hidden Scripts for one tap, the #1 Script. Includes undetectable and god mode for unbeatable performance.
 
 
 
